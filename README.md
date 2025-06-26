@@ -7,7 +7,7 @@
 
 ###
 
-<p align="left">✨ Criando bugs desde 2024<br>📚 Estou aprendendo a programar<br>🎯 Objetivos: não ficar calvo antes de ser senior</p>
+<p align="left">✨ Criando bugs desde 2025<br>📚 Estou aprendendo a programar<br>🎯 Objetivos: não ficar calvo antes de ser senior</p>
 
 ###
 
